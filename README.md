@@ -1,0 +1,2 @@
+# bikinemosi
+Elaborasi Media Informasi
